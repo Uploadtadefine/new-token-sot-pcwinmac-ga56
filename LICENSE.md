@@ -1,4 +1,4 @@
-# 
+# Open Source new token sniper bot modèles pour Mac OS | Professionnel new token sniper bot modèles pour PC Windows. Avec balayage des pools de liquidité et signature des transactions — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
